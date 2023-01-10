@@ -1,0 +1,1 @@
+# _3ve4eBolunenlerinOrtalama
